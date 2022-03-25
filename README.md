@@ -3,6 +3,6 @@
 - 😎 18 anos
 - 📍 São Paulo,SP
 - 👨🏽‍💻 Cursando Análise e Desenvolvimento de Sistemas 1/4
-- 
--  Sometimes you win, sometimes you learn.
+- 📞 Contato: bielfsantos2003@gmail.com
+- 💢 Sometimes you win, sometimes you learn.
 
