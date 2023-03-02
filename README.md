@@ -2,7 +2,7 @@
 
 - 😎 18 anos
 - 📍 São Paulo,SP
-- 👨🏽‍💻 Cursando Análise e Desenvolvimento de Sistemas 1/4
+- 👨🏽‍💻 Cursando Análise e Desenvolvimento de Sistemas 3/4
 - 📞 Contato: bielfsantos2003@gmail.com
 - 💢 Sometimes you win, sometimes you learn.
 
